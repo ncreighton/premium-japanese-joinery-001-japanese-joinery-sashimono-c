@@ -1,0 +1,2 @@
+# premium-japanese-joinery-001-japanese-joinery-sashimono-c
+Tired of piecing together disjointed YouTube clips and blog posts to learn authentic Japanese joinery? This hub eliminates the guesswork, giving you a single, curated masterclass in sashimono cabinet making.  This is the only resource that combines traditional joinery theory with practical cabinet-making workflows, saving you hours of research. You
